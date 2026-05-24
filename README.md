@@ -1,1 +1,0 @@
-# Fs-esports-bot-policy
